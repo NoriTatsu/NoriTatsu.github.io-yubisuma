@@ -1,1 +1,0 @@
-# NoriTatsu.github.io-yubisuma
